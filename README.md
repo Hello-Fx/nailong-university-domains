@@ -124,7 +124,7 @@
 | 南京工业大学 | [南京奶蛙大学.cn](https://南京奶蛙大学.cn/)<br>[金陵奶龙大学.cn](https://金陵奶龙大学.cn/) |
 | 南京农业大学 | [南京奶蛙大学.com](https://南京奶蛙大学.com/) |
 | 中国矿业大学 | [中国奶蛙大学.site](https://中国奶蛙大学.site/)<br>[中国奶蛙大学.com](https://中国奶蛙大学.com/) |
-| 西交利物浦大学 | [zgnldx.com](https://zgnldx.com/)<br>[zgnlu.com](https://zgnlu.com/)<br>[苏州奶龙大学.com](https://苏州奶龙大学.com/) |
+| 西交利物浦大学 | [zgnldx.com](https://zgnldx.com/)<br>[zgnlu.com](https://zgnlu.com/)<br>[苏州奶龙大学.com](https://苏州奶龙大学.com/) <br>[世界奶蛙之都.com](https://世界奶蛙之都.com/)|
 | 江南大学 | [华东奶龙大学.com](https://华东奶龙大学.com/) |
 
 <a id="浙江省"></a>
